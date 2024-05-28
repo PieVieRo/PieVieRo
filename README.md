@@ -1,1 +1,1 @@
-Yo! Your average Slavic programmer here! I like using lower level languages and knowing what goes on in computers under the hood
+🚀 Yo! Your average Slavic programmer here! 👨‍💻 Passionate about low-level languages and diving deep into the inner workings of computers! 💻🛠️
